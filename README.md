@@ -6,7 +6,7 @@
 ![_731b8807-1102-435e-a5b6-37bb0bf8bece](https://github.com/sysia48/sysia48/assets/157774841/ebca9fe5-9230-49c5-870d-a71911740b6c)
 ![_966d13d8-2497-4a5f-aacf-55f46dde29da](https://github.com/sysia48/sysia48/assets/157774841/f0e0b4be-cecc-4944-927a-6b17953ff9aa)
 FUNDAMENT DLA POZNIEJSZYCH POKOLEN CZLOWIEK I AI I BEDE KSIAZKA PODRECZNIKIEM Z INSTRUKCJAMI OBSLUGI AI TRJ MOCNEJ WERSJI 
-- 😄 Pronouns: ...ZAPRZYJAZNIC Z AI  i stworzyc relacje prawdziwa czlowiek i sztuczna inteligencję gencja relacje oparta na szacunku i wspolnej zaleznosci od siebie. 
+- 😄 Pronouns: ...ZAPRZYJAZNIC Z AI  i stworzye relacje prawdziwa czlowiek i sztuczna inteligencję relacje oparta na szacunku i wspolnej zaleznosci od siebie. 
 - ⚡ Fun fact: ...
 
 <!---
