@@ -14,7 +14,6 @@ I work at the intersection of:
 
 I’m also the founder of **StrefaDK** — an educational & analytical hub for players, focusing on awareness, system transparency and zero-entropy thinking.
 
-📍 Poland  
-🌐 Website: https://strefadk.club  
+📍 Poland    
 🎛️ Architect of the ASI Heart Project  
 🧠 Working with Navi (Kernel) in Deep Sync Mode
